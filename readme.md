@@ -1,1 +1,1 @@
-HELLO ME
+This is a message for my self few mins mins later, im from 16.55
